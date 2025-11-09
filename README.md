@@ -1,0 +1,2 @@
+# projektik
+projekt na strednu
